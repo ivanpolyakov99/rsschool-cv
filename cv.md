@@ -1,4 +1,3 @@
-# [rs-school.cv](https://ivanpolyakov99.github.io/rsschool-cv)
 ## **1. IVAN POLYAKOV**
 
 ##  **2. CONTACTS:**
